@@ -1,3 +1,0 @@
-Charlie Nathan
-London
-UK
